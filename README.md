@@ -1,1 +1,1 @@
-# github.akdisnicndjsoxm.io/els.io
+# https://akdisnicndjsoxm.github.io/els.io
